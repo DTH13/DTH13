@@ -8,4 +8,4 @@
 <p align="center">taken ♡ illustrator<p align="center">
 </p>
 
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀[main rentry](https://rentry.co/the-bloodhound)⠀⠀⠀⠀⠀⠀⠀⠀[gstbook](https://kecchori.123guestbook.com/)
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀[main rentry](https://rentry.co/the-bloodhound)⠀⠀⠀⠀⠀[gstbook](https://kecchori.123guestbook.com/)
