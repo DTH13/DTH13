@@ -7,6 +7,3 @@
   
 <p align="center">taken — illustrator<p align="center">
 </p>
-
-<p align="center">[rentry](https://rentry.co/the-bloodhound)<p align="center">
-</p>
