@@ -1,7 +1,7 @@
 
 
 <p align="center">
-  <img src="(https://i.pinimg.com/564x/06/23/8b/06238b4bbbcb2649600e0c8a2a6c4c6c.jpg)" />
+  <img src="https://i.pinimg.com/564x/06/23/8b/06238b4bbbcb2649600e0c8a2a6c4c6c.jpg" />
 </p>
 
 <p align="center"><b>transneu⠀⠀⠀・⠀⠀⠀neutral masc ⠀⠀⠀・⠀⠀⠀ he ⸝ him<b><p align="center">
