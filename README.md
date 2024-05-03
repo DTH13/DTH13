@@ -1,9 +1,30 @@
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀[𝘋𝘈𝘐𝘓𝘠 𝘊𝘓𝘐𝘊𝘒](https://arab.org/click-to-help/)
-
-<p align="center">
-  <img src="https://media.discordapp.net/attachments/1188404571798781983/1230987756331864135/XIIII-4--unscreen.gif?ex=663551af&is=6622dcaf&hm=f470c90031ffe773d3bb06688f111772500b887030a314e06e5f34d43b1584a0&=" />
+<div align="center">
+  
+[DAILY CLICK](https://arab.org/click-to-help/) </div>
 </p>
 
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ ⠀ ⠀⠀⠀    ⠀⠀⠀⠀ ⠀ 𝘩𝘦ﾉ𝘩𝘪𝘮 ⠀⠀⠀⠀⠀𝘵𝘢𝘬𝘦𝘯 ⠀⠀⠀⠀⠀𝘯𝘦𝘶𝘵𝘳𝘢𝘭 𝘮𝘢𝘴𝘤
 
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀[𝘳𝘦𝘯𝘵𝘳𝘺](https://rentry.co/the-bloodhound)⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀[𝘨𝘴𝘵𝘣𝘰𝘰𝘬](https://kecchori.123guestbook.com/)⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀[𝘱𝘳𝘯𝘴](https://en.pronouns.page/@kewiwo)⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀[𝘨𝘳𝘢𝘱𝘩𝘪𝘤𝘴 (𝘸𝘪𝘱)](https://rentry.co/xiii-graph)
+<p align="center">
+ <img src="https://media.discordapp.net/attachments/1188404571798781983/1235936336075030569/ezgif-6-27a42f5dce.gif?ex=66362ee9&is=6634dd69&hm=5c9c51ccd4e3bd4467dc126e994045aba3a0ee7a6de5a42bef868a75b7498155&=&width=498&height=498" />
+</p>
+
+<p align="center">
+$\mathcal{\color{#C0D3DC}{XIII} \ \ \ \ \ \ \ \ \ \ \ \ \color{#E4E4E4}{he/she} \ \ \ \ \ \ \ \ \ \ \ \ \color{#A53A51}{taken♡}}$ <br>
+$\text{above gi area!!}$
+</p>
+
+<div align="center"> 
+
+ <br> [main rentry](https://rentry.co/the-bloodhound) | [gstbook](https://kecchori.123guestbook.com/) | [prns](https://en.pronouns.page/@russian.roulette) | [my graphics!(wip)](https://rentry.co/xiii-graph) </div>
+</p>
+
+<div align="center"> 
+<br> creds
+  
+  [sunday eidolon](https://x.com/chioryaboutique/status/1779522986053099577) | [rsc](https://rentry.co/ulzzang) </div>
+</p>
+
+
+<p align="center">
+ <img src="https://files.catbox.moe/rp3w5k.png" />
+</p>
