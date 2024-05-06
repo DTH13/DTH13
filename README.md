@@ -15,7 +15,7 @@ $\text{above gi area!! . . currently offline mode}$
 
 <div align="center"> 
 
- <br> [main rentry](https://rentry.co/the-bloodhound) | [gstbook](https://kecchori.123guestbook.com/) | [prns](https://en.pronouns.page/@russian.roulette) | [my graphics!(wip)](https://rentry.co/xiii-graph) </div>
+ <br> [main rentry](https://rentry.co/the-bloodhound) | [gstbook](https://kecchori.123guestbook.com/) | [prns](https://en.pronouns.page/@russian.roulette) | [commission!!](https://xii13.carrd.co/) </div>
 </p>
 
 <div align="center"> 
