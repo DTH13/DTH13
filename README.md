@@ -16,7 +16,7 @@ $\text{physically tired, mentally drained and stressed please iwec at all time!!
 
 <div align="center"> 
 
- <br> [main rentry](https://rentry.co/the-bloodhound) | [gstbook](https://kecchori.123guestbook.com/) | [prns](https://en.pronouns.page/@russian.roulette) | [commission!!](https://xii13.carrd.co/) </div>
+ <br> [main rentry](https://rentry.co/the-bloodhound) | [retrospring](https://retrospring.net/@DTH13) | [prns](https://en.pronouns.page/@russian.roulette) | [commission!!](https://xii13.carrd.co/) </div>
 </p>
 
 <div align="center"> 
