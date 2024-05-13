@@ -10,7 +10,8 @@
 
 <p align="center">
 $\mathcal{\color{#C0D3DC}{XIII} \ \ \ \ \ \ \ \ \ \ \ \ \color{#E4E4E4}{he/she} \ \ \ \ \ \ \ \ \ \ \ \ \color{#A53A51}{taken♡}}$ <br>
-$\text{above gi area!! . . currently offline mode}$
+$\text{above gi area!! . . currently offline mode}$ <br>
+$\text{physically tired, mentally drained and stressed please iwec at all time!!}$
 </p>
 
 <div align="center"> 
