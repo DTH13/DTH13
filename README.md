@@ -10,7 +10,7 @@
 
 <p align="center">
 $\mathcal{\color{#C0D3DC}{XIII} \ \ \ \ \ \ \ \ \ \ \ \ \color{#E4E4E4}{he/she} \ \ \ \ \ \ \ \ \ \ \ \ \color{#A53A51}{ftm}}$ <br>
-$\text{usually above gi area!!}$
+$\text{im quitting pony town for my own reason, i don't really get comfy and get the fun in pt anymore, thank you for everything}$
 </p>
 
 <div align="center"> 
