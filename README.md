@@ -9,7 +9,7 @@
 </p>
 
 <p align="center">
-$\mathcal{\color{#C0D3DC}{XIII} \ \ \ \ \ \ \ \ \ \ \ \ \color{#E4E4E4}{he/she} \ \ \ \ \ \ \ \ \ \ \ \ \color{#A53A51}{taken♡}}$ <br>
+$\mathcal{\color{#C0D3DC}{XIII} \ \ \ \ \ \ \ \ \ \ \ \ \color{#E4E4E4}{he/she} \ \ \ \ \ \ \ \ \ \ \ \ \color{#A53A51}{ftm}}$ <br>
 $\text{usually above gi area!!}$
 </p>
 
