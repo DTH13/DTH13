@@ -11,7 +11,7 @@
 <p align="center">
 $\mathcal{\color{#C0D3DC}{XIII} \ \ \ \ \ \ \ \ \ \ \ \ \color{#E4E4E4}{he/she} \ \ \ \ \ \ \ \ \ \ \ \ \color{#A53A51}{ftm}}$ <br>
 $\text{im quitting pony town for my own reason, i don't really get comfy and get the fun in pt anymore, thank you for everything}$ <br>
-$\text{i might or might not go back playing pt, it depends on my mental health}$
+$\text{i might or might not go back playing pt, it depends on my mental health, my discord is @death1ove add me freely}$
 </p>
 
 <div align="center"> 
