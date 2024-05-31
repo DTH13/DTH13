@@ -15,7 +15,7 @@ $\text{afk most of the time, w2i . . lowk drained}$
 
 <div align="center"> 
 
- <br> [main rentry](https://rentry.co/the-bloodhound) | [retrospring](https://retrospring.net/@DTH13) | [prns](https://en.pronouns.page/@russian.roulette) | [commission!!](https://xii13.carrd.co/) </div>
+ <br> [main rentry](https://rentry.co/ENCO-RE) | [retrospring](https://retrospring.net/@DTH13) | [prns](https://en.pronouns.page/@russian.roulette) | [commission!!](https://xii13.carrd.co/) </div>
 </p>
 
 <div align="center"> 
