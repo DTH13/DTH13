@@ -9,7 +9,7 @@
 </p>
 
 <p align="center">
-$\mathcal{\color{#C0D3DC}{XIII} \ \ \ \ \ \ \ \ \ \ \ \ \color{#E4E4E4}{he/she} \ \ \ \ \ \ \ \ \ \ \ \ \color{#A53A51}{ftm}}$ <br>
+$\mathcal{\color{#C0D3DC}{XIII} \ \ \ \ \ \ \ \ \ \ \ \ \color{#E4E4E4}{he/she}}$ <br>
 $\text{afk most of the time, w2i . . lowk drained}$
 </p>
 
