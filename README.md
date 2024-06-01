@@ -5,7 +5,7 @@
 
 
 <p align="center">
- <img src="https://media.discordapp.net/attachments/1188404571798781983/1235936336075030569/ezgif-6-27a42f5dce.gif?ex=66362ee9&is=6634dd69&hm=5c9c51ccd4e3bd4467dc126e994045aba3a0ee7a6de5a42bef868a75b7498155&=&width=498&height=498" />
+ <img src="https://64.media.tumblr.com/3415ea6952f7be292dc9782c445b1083/de4f665e3e24f096-69/s400x600/76e529b8c807d804401482f47f0954b1717758b0.gifv" />
 </p>
 
 <p align="center">
@@ -21,7 +21,7 @@ $\text{afk most of the time, w2i . . lowk drained}$
 <div align="center"> 
 <br> creds
   
-  [sunday eidolon](https://x.com/chioryaboutique/status/1779522986053099577) | [rsc](https://rentry.co/ulzzang) </div>
+  [graphs](https://www.tumblr.com/hsdjjgjehfnd/717005112794578944/%E0%AD%A8-fischl-graphics-%E0%AD%A7-reblog-to-use) | [rsc](https://rentry.co/ulzzang) </div>
 </p>
 
 
