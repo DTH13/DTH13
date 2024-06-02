@@ -8,7 +8,8 @@
 
 <p align="center">
 $\mathfrak{\color{#8d2327}{xiii} \ \ \ \ \ \ \ \ \ \ \ \ \color{#6f238d}{he/she}}$ <br>
-$\textit{afk \ \ most \ \ of \ \ the \ \ time, \ \ w2i \ \ . \ \ . \ \ lowk \ \ drained}$
+$\textit{afk \ \ most \ \ of \ \ the \ \ time, \ \ w2i \ \ . \ \ . \ \ lowk \ \ drained}$ <br>
+$\textit{feel \ \ free \ \ 2 \ \ int!! \ \ i \ \ don't \ \ bite \ \ :)}$
 </p>
 
 <div align="center"> 
