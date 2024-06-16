@@ -10,7 +10,7 @@ $\textit{feel \ \ free \ \ 2 \ \ int!! \ \ i \ \ don't \ \ bite \ \ :)}$
 
 <div align="center"> 
 
- <br> [main rentry](https://rentry.co/ENCO-RE) | [retrospring](https://retrospring.net/@DTH13) | [prns](https://en.pronouns.page/@russian.roulette) | [commission!!](https://xii13.carrd.co/) | [DAILY CLICK](https://arab.org/click-to-help/) </div>
+ <br> [main rentry](https://rentry.co/ENCO-RE) | [retrospring](https://retrospring.net/@DTH13) | [prns](https://en.pronouns.page/@russian.roulette) | [commission!!](https://xiii-comm.carrd.co/) | [DAILY CLICK](https://arab.org/click-to-help/) </div>
 </p>
 
 <div align="center"> 
