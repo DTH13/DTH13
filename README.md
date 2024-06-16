@@ -1,9 +1,5 @@
 <p align="center">
- <img src="https://media.discordapp.net/attachments/1188404571798781983/1246611711926993057/Untitled654_20240602064850.png?ex=665d0521&is=665bb3a1&hm=18b26c987995c9aad2b38724f01905aa46e116c2663469c03b76ed1758ccedcc&=&format=webp&quality=lossless&width=1025&height=256" />
-</p>
-
-<p align="center">
- <img src="https://media.discordapp.net/attachments/1188404571798781983/1246611711155376128/Untitled653_20240602063749.png?ex=665d0520&is=665bb3a0&hm=f8d23260ab861c78abd8d0aead67008b20465f57efd2ea471e2c5694b9495053&=&format=webp&quality=lossless&width=827&height=498" />
+ <img src="https://media.discordapp.net/attachments/1188404571798781983/1246611711155376128/Untitled653_20240602063749.png?ex=667022e0&is=666ed160&hm=7331b424e90b57462c7eb228d234ade11fd51b63ebe29e55d0d8c87aa1acf113&=&format=webp&quality=lossless&width=827&height=498" />
 </p>
 
 <p align="center">
@@ -21,9 +17,4 @@ $\textit{feel \ \ free \ \ 2 \ \ int!! \ \ i \ \ don't \ \ bite \ \ :)}$
 <br> creds
   
   graphic mine <3 | [resources](https://rentry.co/ulzzang) </div>
-</p>
-
-
-<p align="center">
- <img src="https://media.discordapp.net/attachments/1188404571798781983/1246611712308805692/Untitled654_20240602064904.png?ex=665d0521&is=665bb3a1&hm=2aefe435b4a518b5d01267392f3f1ee0b343b84d868776a10ad306d658aa1c73&=&format=webp&quality=lossless&width=1025&height=256" />
 </p>
