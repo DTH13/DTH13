@@ -6,7 +6,7 @@
 $\mathfrak{\color{#8d2327}{xiii} \ \ \ \ \ \ \ \ \ \ \ \ \color{#6f238d}{he/she}}$ <br>
 $\textit{afk \ \ most \ \ of \ \ the \ \ time, \ \ w2i \ \ . \ \ . \ \ lowk \ \ drained}$ <br>
 $\textit{feel \ \ free \ \ 2 \ \ int!! \ \ i \ \ don't \ \ bite \ \ :)}$ <br>
- $\textit{inactive \ \ due \ \ busy \ \ with \ \ irl \ \ stuff!! \ \ ^_^}$
+ $\textit{inactive \ \ due \ \ busy \ \ with \ \ irl \ \ stuff!!}$
 </p>
 
 <div align="center"> 
